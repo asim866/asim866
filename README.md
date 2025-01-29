@@ -1,3 +1,4 @@
+![Screenshot_2025-01-24-18-07-27-31_f9ee0578fe1cc94de7482bd41accb329](https://github.com/user-attachments/assets/b2e24059-939b-4a36-bf35-32add58c61e4)
 ## Hi there 👋
 
 <!--
